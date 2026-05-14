@@ -1,4 +1,4 @@
-#  
+#  Experience fish it like never before with advanced Scripts for fish it, the #1 Script. Includes auto-sell and aimbot for unbeatable performance.
 
 
 
